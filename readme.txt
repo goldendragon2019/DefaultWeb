@@ -1,2 +1,3 @@
 alma
-körte
+kï¿½rte
+narancs
