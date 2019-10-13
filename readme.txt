@@ -1,3 +1,3 @@
 alma
 k�rte
-narancs
+narancsos kacsa
